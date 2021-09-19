@@ -24,7 +24,7 @@ logo = f"""
 ╚╗╔╗╔╣║─║║╔═╗║─║║─║╚═╝║╔═╗║║──║║
 ─╚╝╚╝╚╝─╚╩╝─╚╝─╚╝─╚═══╩╝─╚╩╝──╚╝
 {G}█▀▀ █▀█ ▄▀█ █▀ █░█ █▀▀ █▀█ {C}Coded By Ansh Dadwal
-{G}█▄▄ █▀▄ █▀█ ▄█ █▀█ ██▄ █▀▄ {C}Crash Txt by @Baapg 
+{G}█▄▄ █▀▄ █▀█ ▄█ █▀█ ██▄ █▀▄ {C}Crash Txt by @BaapG 
 """
 os.system('clear')
 def main():
