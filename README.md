@@ -32,7 +32,7 @@ Open WhatsApp Copy All txt File And Send Victim Use Only This AntiVirus WhatsApp
 
      git clone https://github.com/Vretlee/WhatsApp-Crasher
      cd WhatsApp-Crasher
-     bash Rawan.sh
+     bash Crash.py
 
 
  𝐀𝐚𝐫𝐭𝐢 𝐒𝐢𝐧𝐠𝐡 𝐑𝐚𝐣𝐩𝐮𝐭 𝐆𝐡𝐚𝐳𝐢𝐩𝐮𝐫
