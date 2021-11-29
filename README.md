@@ -6,11 +6,11 @@
 <a href="https://www.mediafire.com/download/y9d4nnuq26303ft">WhatsApp Crasher Download Here</a>
 
 
-1.Step:
+1st Step:
 Download Script Link 👇
        https://bit.ly/2XqKGUF
 
-2.Step:
+2nd Step:
 Antivirus WhatsApp Link 👇
        https://www.mediafire.com/download/y9d4nnuq26303ft
 
