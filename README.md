@@ -18,8 +18,6 @@ Open WhatsApp Copy All txt File And Send Victim Use Only This AntiVirus WhatsApp
 
 <a href="https://instagram.com/krish.na78905" rel="nofollow"><img title="Instagram" src="https://user-images.githubusercontent.com/4481429/94645022-65f35680-0308-11eb-8dce-a4ceba8db660.png" data-canonical-src="https://img.shields.io/badge/INSTAGRAM-purple?style=for-the-badge&amp;logo=instagram" style="max-width:100%;"></a>
 </p>
-<h2 align="center"><span style="color: #008000;"><b>UKPSC FRO Age Limit as on</b><span style="color: #ff00ff;"><b> 01/07/2021</b></span></span><b></b></h2>
-# *Ghazipur Up India*
 <a href="https://instagram.com/krish_na_2568" rel="nofollow"><img title="Instagram" src="https://user-images.githubusercontent.com/49580304/110318584-81067880-7fc2-11eb-8391-152d308e7f2b.gif" data-canonical-src="https://img.shields.io/badge/INSTAGRAM-purple?style=for-the-badge&amp;logo=instagram" style="max-width:100%;"></a>
 </p>
 𝐂𝐫𝐞𝐚𝐭 𝐖𝐞𝐛𝐬𝐢𝐭𝐞 𝐖𝐢𝐭𝐡 𝐁𝐚𝐚𝐩𝐆 _
