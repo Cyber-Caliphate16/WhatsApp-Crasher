@@ -16,7 +16,7 @@ Antivirus WhatsApp Link 👇
 
 Open WhatsApp Copy All txt File And Send Victim Use Only This AntiVirus WhatsApp
 
-<a href="https://instagram.com/krish.na78905">Crash WhatsApp Status </a>
+<a href="https://youtu.be/_mMDmJq_Q2w">Crash WhatsApp Status </a>
 </p>
 <a href="https://instagram.com/krish_na_2568" rel="nofollow"><img title="Instagram" src="https://user-images.githubusercontent.com/49580304/110318584-81067880-7fc2-11eb-8391-152d308e7f2b.gif" data-canonical-src="https://img.shields.io/badge/INSTAGRAM-purple?style=for-the-badge&amp;logo=instagram" style="max-width:100%;"></a>
 </p>
