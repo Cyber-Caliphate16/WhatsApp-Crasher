@@ -6,15 +6,15 @@
 <a href="https://www.mediafire.com/download/y9d4nnuq26303ft">WhatsApp Crasher Download Here</a>
 
 
-1st Step:
+- 1st Step:
 Download Script Link 👇
        https://bit.ly/2XqKGUF
 
-2nd Step:
+- 2nd Step:
 Antivirus WhatsApp Link 👇
        https://www.mediafire.com/download/y9d4nnuq26303ft
 
-Open WhatsApp Copy All txt File And Send Victim Use Only This AntiVirus WhatsApp
+- Open WhatsApp Copy All txt File And Send Victim Use Only This AntiVirus WhatsApp
 
 
 <html>
@@ -32,7 +32,7 @@ Open WhatsApp Copy All txt File And Send Victim Use Only This AntiVirus WhatsApp
 
 # Status Crash YouTube Link 👇
 
-<a href="https://youtu.be/_mMDmJq_Q2w">Crash Status YouTube▶️</a>
+- <a href="https://youtu.be/_mMDmJq_Q2w">Crash Status YouTube▶️</a>
 </p>
     
  
