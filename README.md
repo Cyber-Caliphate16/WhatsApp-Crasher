@@ -32,7 +32,7 @@ Open WhatsApp Copy All txt File And Send Victim Use Only This AntiVirus WhatsApp
 
 # Status Crash YouTube Link 👇
 
-<a href="https://youtu.be/_mMDmJq_Q2w">Crash WhatsApp Status </a>
+<a href="https://youtu.be/_mMDmJq_Q2w">Crash Status YouTube▶️</a>
 </p>
     
  
