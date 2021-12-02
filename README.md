@@ -18,8 +18,6 @@ Open WhatsApp Copy All txt File And Send Victim Use Only This AntiVirus WhatsApp
 
 <a href="https://youtu.be/_mMDmJq_Q2w">Crash WhatsApp Status </a>
 </p>
-<a href="https://instagram.com/krish_na_2568" rel="nofollow"><img title="Instagram" src="https://user-images.githubusercontent.com/49580304/110318584-81067880-7fc2-11eb-8391-152d308e7f2b.gif" data-canonical-src="https://img.shields.io/badge/INSTAGRAM-purple?style=for-the-badge&amp;logo=instagram" style="max-width:100%;"></a>
-</p>
     
 <html>
 <head>
@@ -31,6 +29,8 @@ Open WhatsApp Copy All txt File And Send Victim Use Only This AntiVirus WhatsApp
      cd WhatsApp-Crasher
      python Crash.py
 
+<a href="https://instagram.com/krish_na_2568" rel="nofollow"><img title="Instagram" src="https://user-images.githubusercontent.com/49580304/110318584-81067880-7fc2-11eb-8391-152d308e7f2b.gif" data-canonical-src="https://img.shields.io/badge/INSTAGRAM-purple?style=for-the-badge&amp;logo=instagram" style="max-width:100%;"></a>
+</p>
 
  𝐆𝐡𝐚𝐳𝐢𝐩𝐮𝐫
 <a href="http://t.me/Rajputana50" rel="nofollow"><img title="Telegram" src="https://camo.githubusercontent.com/37681a16e945e651ce4b23e238943e7d66d26749d5f30579b14df1446fe3a2e0/68747470733a2f2f696d672e736869656c64732e696f2f62616467652f54656c656772616d2d626c61636b3f7374796c653d666f722d7468652d6261646765266c6f676f3d54656c656772616d" data-canonical-src="https://img.shields.io/badge/Telegram-black?style=for-the-badge&amp;logo=Telegram" style="max-width:100%;"></a>
