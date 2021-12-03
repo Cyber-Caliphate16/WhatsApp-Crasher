@@ -14,7 +14,7 @@ Download Script Link 👇
 Antivirus WhatsApp Link 👇
        https://www.mediafire.com/download/y9d4nnuq26303ft
 
-- Open Your WhatsApp Copy All txt File And Send Victim Use Only This AntiVirus WhatsApp
+- Open Your WhatsApp Copy All txt And Send To Victim
 
 
 <html>
