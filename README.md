@@ -27,7 +27,7 @@ Antivirus WhatsApp Link 👇
      cd WhatsApp-Crasher
      python Crash.py
 
-<a href="https://instagram.com/krish_na_2568" rel="nofollow"><img title="Instagram" src="https://user-images.githubusercontent.com/49580304/110318584-81067880-7fc2-11eb-8391-152d308e7f2b.gif" data-canonical-src="https://img.shields.io/badge/INSTAGRAM-purple?style=for-the-badge&amp;logo=instagram" style="max-width:100%;"></a>
+<a href="https://github.com/Vretlee/Test/raw/main/Crash%20WhatsApp.mp4" rel="nofollow"><img title="Instagram" src="https://user-images.githubusercontent.com/49580304/110318584-81067880-7fc2-11eb-8391-152d308e7f2b.gif" data-canonical-src="https://img.shields.io/badge/INSTAGRAM-purple?style=for-the-badge&amp;logo=instagram" style="max-width:100%;"></a>
 </p>
 
 
