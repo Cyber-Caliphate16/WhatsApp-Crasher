@@ -7,7 +7,7 @@
 
 - 1st Step:
 Download Script Link 👇
-       https://bit.ly/2XqKGUF
+       https://bit.ly/3EwFbUS
 
 - 2nd Step:
 Antivirus WhatsApp Link 👇
