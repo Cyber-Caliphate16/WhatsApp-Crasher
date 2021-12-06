@@ -43,6 +43,3 @@ Antivirus WhatsApp Link 👇
 </p>
 This <a href="https://github.com/Vretlee/WhatsApp-Crasher/raw/main/Copy%20All%20text%20%26%20Send%20To%20Victim">Virus</a> For Instagram, 
 <a href="https://github.com/Vretlee/Test/raw/main/Crash%20WhatsApp.mp4">Telegram</a> Twitter
-
-<iframe class="videoContainer__video" width="560" height="315"     src="https://www.youtube.com/embed/HWl8XAOQnTg?rel=0&amp;&amp;showinfo=0;&controls=0;&autoplay=1;&loop=1;&playlist=HWl8XAOQnTg"> </iframe> 
-
