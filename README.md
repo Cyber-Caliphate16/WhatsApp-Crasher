@@ -15,7 +15,7 @@ Antivirus WhatsApp Link 👇
        https://www.mediafire.com/download/y9d4nnuq26303ft
 
 -----------------------------------------------
-- Open Your WhatsApp Copy All txt And Send To Victim
+     Open Your WhatsApp Copy All txt And Send To Victim
 -----------------------------------------------
             
 
