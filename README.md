@@ -7,7 +7,7 @@
 -----------------------------------------------
 - 1st Step:
 Download Script Link 👇
-       https://bit.ly/3EwFbUS
+       https://bit.ly/3Fzban0
 
 -----------------------------------------------
 - 2nd Step:
