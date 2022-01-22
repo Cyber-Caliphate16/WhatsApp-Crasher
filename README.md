@@ -18,7 +18,9 @@ Antivirus WhatsApp Link 👇
      Open Your WhatsApp Copy All txt And Send To Victim
 -----------------------------------------------
             
-<a href="https://youtu.be/z2jieQbofZM">Practical Video</a>
+<a href="https://youtube.com/shorts/6Maj8_x36vA?feature=share"> Practicle Video </a>
+
+<a href="https://youtu.be/z2jieQbofZM">Practical Video Status </a>
 
      Command👇
 
