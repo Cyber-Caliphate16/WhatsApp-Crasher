@@ -23,7 +23,7 @@ Antivirus WhatsApp Link 👇
 
      Command👇
 
-     git clone https://github.com/Vretlee/WhatsApp-Crasher
+     git clone https://github.com/Cyber-Caliphate16/WhatsApp-Crasher
      cd WhatsApp-Crasher
      python Crash.py
 
