@@ -44,4 +44,4 @@ Antivirus WhatsApp Link 👇
 </p>
 This <a href="https://github.com/Elliot290/WhatsApp-Crasher/raw/main/Copy%20All%20text%20%26%20Send%20To%20Victim">Virus</a> For Instagram, 
 <a href="https://t.me/nightfury090">Telegram</a> Twitter
-<img src="https://github.com/Elliot290/Elliot290/raw/main/Hacked_By_CyberCaliphate.jpg"></img>
+
